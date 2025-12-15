@@ -27,7 +27,7 @@
 ### 🤝 Let's Connect
 
 - 📫 Email: andrewey26@gmail.com  
-- 🐦 Twitter (X): [@andre785661](https://x.com/andre785661?s=21)
+- 🐦 Twitter (X): [https://x.com/onlyandrehq?s=21)
 
 ---
 
